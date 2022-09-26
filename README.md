@@ -30,8 +30,7 @@ please joe again soon you amazing joetard
 .
 .
 
-note:
-.
+note:  
 hey school admins this isnt a proxy website this is just a website i made that redirects people to my music or art
 like my own personal hub i guess, so uh
 dont block it, like i cant access my own website, i can edit it, but i cant access it so uh... please see this
