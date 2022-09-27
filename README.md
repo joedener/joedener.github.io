@@ -6,7 +6,7 @@ blog:
 -
 click on that for the blogf (its art)
 
-websites: https://joedener.github.io/webssits.github.io/
+websites: https://joedener.github.io/webssits
 -
 cool webbers i found (dont tell orange child)
 
